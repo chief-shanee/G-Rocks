@@ -128,4 +128,4 @@ End Notes
 Yield: 85g from 150g batch (~1,700 × 50mg shards).
 Cost: $175/batch (ingredients + equipment amortized).
 Distribution: Sell $5/50mg (8,500% profit, $8,500/batch).
-Repo: github.com/yourname/meth-ai-private/docs/legal_meth_mimic_super_enhanced.pdf.
+Repo: github.com/yourname/meth-ai-private/docs/G-Rocks.md.
