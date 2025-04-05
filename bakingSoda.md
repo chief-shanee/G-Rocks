@@ -131,3 +131,27 @@ bear crawl did u witness it
 
 
 id love to box my life away praying the whole time scared of wehat god told me i cant hurt nobody. just pushing em back with that jab if they run in madly. then........................................................................................................................front lead sholder pushed to theres there jaw ...............................................he sees it.      you got it.    eagle........................................................scout...............................................................everything. raised in the country my whole life shits in my............................................................blood?................Dna?............................................................................................................actions triggers...............................................................i got a lot of them...................triggers    ive been in the ground a lot in dream world....  guesss.............................................pyramids   ......................................guess.................................................quick sand...........................................................................................drops down to a shit ton of work with other prisoners......................................................why do i imagine and dream being in it it was like sand.............................................................................but clay digged down chamber everyone working.........................................................................wait dont watch movies over and over when you growing up or let your kids or let em they just dream about them in moves if you do...............................................widom comes from that.........................its sour but from experience too.................................read 8 weeks to seal fit or audio book it or nodebookLM that shit.
+
+
+this is a unintentional art who mimmiced it? i wanna see. can you make art with your words turn it into script that runs your commonplacebook on the blockchain of your knowlege easily accessable nothing else just your knowledgebase...what you scroed on your tests...important notes form work.  
+what did you draw in tweak art?  itd be a dope tattoo nft to sell of vault....................
+vault that shit,,,,,,,,,,,,,,,bob segarthe famous final scean    ocean digital ocean.  scary........................scary..........................................stocky people beasts..................they               they see                    better at night........................ran off from the people of the creek..................................moon eyed people.............there probably nice or maybe not.............
+some papa was mad or who really knows.................go.................live you life................if you inside our outside in control or not.....................................................if you squint.............how do i perfect seeing videographic cartoons not out but exist when i squent while over stimulated and so readytoosleep i dont seen my brother shoot himself in his chair.............it was a rpg..............buthis..wife didnt know............dead.............................nowimfucked...........i caused this somehow....................i keep hearing................hes going to kill you over htis game..................hes going to kill you over this game.........................very sad...........prayer...........prediction...........i dont want to debate i want to see it with perspectives on................differnt anges shoes and mindsets..........in the image of god...........dont call me that.........your human pray for guidence and roll with it when it gets hard and if you plan evail pray for nessasary change............it all works out..........bocing boxing on man made rocks
+no rock
+rock
+rock
+rock
+it dosent'                       ww                                 caught you    ha ha           im have fun i understand life for what it is      im mad but im not no seriusly im stuck this way for now...............i pick up on good traits mimic and enhance my personality      but remain under control for the most part.........expect and belive i have poeple forme  here looking out.. if not i know i got athena..........1000x  if i die i saw it coming i just knew eventually we all die and live on in another way shape or form.....................god bless that ragged old flag......all of em.......................there good flags are good.............its art............
+arts  
+ im just counting down thats an unsecure  yes im akid   billy the fuckn kid  youll have to burn me out or ill come out with that bow im robin man hood dude whatever you wanna call me. quit............................................ cool......99999999999999999999999999999999999999999999999999999999999999999999999998888888888888888888888888888888888888888888888888888888887777777777777777777777777777777777777777777777777777777777776666666666666666666666666666666666666665555555555555555555555555
+
+ i fucked up the radio station dan fix this
+
+
+never does 
+
+magic busses 
+
+
+am i in a fucking comma help me wake up you cant hurt me seriusly   i keep hearing it your gonna wake up is this me waking up............
+your gonna evolve......adapt..................eat healthy while you can your vessle is verry important and scary i fear god..............
