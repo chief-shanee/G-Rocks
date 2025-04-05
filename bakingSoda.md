@@ -31,6 +31,48 @@ spongebob theme song
 
 
 
+them huies dropped them off
+                                     sike but yall aint taking my metitor.
+yeah good song 
+
+bob segar could
+                                no why didint they tech me that space shit. wait a seccond yalll can kiss my ass.   
+live forever like skynard            i dont like that name.
+
+nastradomus bed frame                                      ash tray                              water              i know what yall are doing...       my thaught process
+
+ik what yall say when i leave the room....
+
+i know what yall say because you say it about everybody...........
+
+nothing
+
+but some girls do
+
+
+the 3rd
+
+
+who hacked that mf
+
+
+ass u and me
+
+
+lets see one of us go im sure.
+
+
+thats and damn dog shane   in reality..   dog shane
+
+i pray if falls into place seems very out of my control. naturl uncontrollable impulese
+
+
+im pretty damn close
+
+but didnt evne know and ill for get when im manic
+
+gn alienx 
+75 cybersecurity softwares all differnt abilitys................add it all in one itd be a hell of a open sourced business............few thousand a year for premium verson says the crook.                   what got me thinking about crooking........................im a proud slave labor and worker and server. right or wrong i pray day and night for guidence this is where i end up. in god we trust. that will never change send me off shoot me into it burry me pardon me jail me sue me take my credit score my buck i wish never killed one except a button buck.  i got a buck to my name i got everything i need and want. no shitter. but im blessed access to friends and family houses couches.........no criminal record...perfect driving record..........genetic paranoid skitzo disorder. similar but idk if its ptsd in the same sense. i think war is a big part of it though... hell prove me wrong...........its more...............im sure........... if there is meds to stop that temporaraly im all in if its safe homefully natural.... high or sober im the same way.........no public..............everyone is out after me............i hear run shane..............run shane.............run shane..................run shane.....................what for president? whyd she tell me im going to be that one day...........i felt it in my gut........and belived it.........hell i still do.....................idk how in the hell it will happen but im amercian or cornholio one.   bevis or butthead one is roboto i just know it.......wait maybe thats just a funny idology not a theroy
 
 
 
