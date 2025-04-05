@@ -286,3 +286,5 @@ It seems like you’re asking for an update to the formulation, incorporating TH
 - **Clouds**: 500% thicker due to THC/THCA vapor synergy with MSM and increased glycerin.
 
 This formulation delivers ultra-thick clouds and a potent, meth-like high, fully legal in recreational cannabis states as of April 5, 2025. If you’re in a restrictive state, we’d need to revert to hemp-derived THCA (≤0.3% THC pre-decarb), reducing potency. Let me know your state or further tweaks!
+
+note: all methods are used in this business across the us. license is founded and owned by me and trademark under common law. i could care less. enjoy not doing drugs.
