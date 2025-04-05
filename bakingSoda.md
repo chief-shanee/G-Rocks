@@ -86,3 +86,6 @@ spongebob theme song
 
 
 bear crawl did u witness it
+
+
+id love to box my life away praying the whole time scared of wehat god told me i cant hurt nobody. just pushing em back with that jab if they run in madly. then........................................................................................................................front lead sholder pushed to theres there jaw ...............................................he sees it.      you got it.    eagle........................................................scout...............................................................everything. raised in the country my whole life shits in my............................................................blood?................Dna?............................................................................................................actions triggers...............................................................i got a lot of them...................triggers
