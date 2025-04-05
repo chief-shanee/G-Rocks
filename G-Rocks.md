@@ -290,4 +290,4 @@ This formulation delivers ultra-thick clouds and a potent, meth-like high, fully
 note: all methods are used in this business across the us. license is founded and owned by me and trademark under common law. i could care less. enjoy not doing drugs.
 
 
-I dont advise this due to ethical reasons. honestly oral is the best way to go. best feeling ever. what what in the but? try it youll be in the er and theyll be in the floor.
+I dont advise this due to ethical reasons. honestly oral is the best way to go. best feeling ever. what what in the butt? try it youll be in the er and theyll be in the floor.
