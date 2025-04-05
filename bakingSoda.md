@@ -16,6 +16,24 @@ no need for rocks just maake the grunting sound we know what your doing actions 
 
 
 
+and the drunk guy was on his knees puke all over him. do you think i care do you think i care do you think i care pause and blcok everything out with prayer.
+
+
+
+slapped bitch slapped
+
+
+drunk people dont shut up
+
+
+
+spongebob theme song  
+
+
+
+
+
+
 
 
 
